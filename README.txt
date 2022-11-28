@@ -1,3 +1,5 @@
+The Forgotton Quest: A text-based choose your own adventure story
+
 Creator's Note: The game will most likely be incomplete by the due date, although you should expect at least half of the main game finished, or a couple of available paths for game completion. If you want, I will be more than glad to update you on the progress made, and send you the full game once it is completed if you would like to try it out. Thanks.
 
 
