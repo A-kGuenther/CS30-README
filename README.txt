@@ -30,3 +30,6 @@ later, the (post-)evil witch, settled down after being previously defeated by th
 those who live within. Isadore Thornheart as we now call her, has been taken over by a mysterious known corruption that spread from the depths below, turning everything
 it touches into a dangerous, feiry material. Xileus, the ancient wizard, looking over what his lands have become and of his wife, summons 4 new heros who are worthy; the
 last hope for the kingdom, and restore peace to the realm. Because all great stories.. begin with a call for help.
+
+Rec Room: https://recroom.com
+Curse of the Crimson Cauldron: https://rec-room.fandom.com/wiki/The_Curse_of_the_Crimson_Cauldron
